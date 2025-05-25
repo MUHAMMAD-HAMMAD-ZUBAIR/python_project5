@@ -145,4 +145,4 @@ Use it freely and responsibly — give credit where due! 🙌
 ---
 
 > 💬 "Your secrets matter. Protect them with Secure Vault."  
-> — *Muhammad Hammad Zubair*
+> — *MUHAMMAD HAMAD ZUBAIR*
